@@ -9,3 +9,4 @@ I am an enthusiastic and outstanding student at Del Institute of Technology majo
 - 🎓 Education: Del Institute of Technology
 - 📍 Country: Indonesia
 - ✉️ Email: griseldadachi04@gmail.com
+-  Tableu : https://public.tableau.com/app/profile/griselda.dachi/vizzes 
